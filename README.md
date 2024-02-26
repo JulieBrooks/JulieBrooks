@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @JulieBrooks
-- 👀 I’m interested in ... all things .net Developers! 
+- 👀 I’m interested in ... all things tech talent
 - 💞️ I’m looking to collaborate on ... finding your next gig :)
 - 📫 How to reach me ... here or via LinkedIn https://www.linkedin.com/in/juliebrooks1/
